@@ -50,4 +50,4 @@ Github Repo Link : https://github.com/Bangkit-Brewtopia
 
 10-Min Video Presentation Link : https://youtu.be/AEQ90MS6K4k
 
-Slide Presentation Link(s) : https://www.canva.com/design/DAFlNyrzjfc/j_BHZaQ1sZFi3SNCL_kVYw/edit?utm_content=DAFlNyrzjfc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+Slide Presentation Link(s) : [https://www.canva.com/design/DAFlNyrzjfc/j_BHZaQ1sZFi3SNCL_kVYw/edit?utm_content=DAFlNyrzjfc&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAFlNyrzjfc/fI0CMDM-OuVHajfmroWwBQ/view?utm_content=DAFlNyrzjfc&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink)https://www.canva.com/design/DAFlNyrzjfc/fI0CMDM-OuVHajfmroWwBQ/view?utm_content=DAFlNyrzjfc&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
